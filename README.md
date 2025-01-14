@@ -1,0 +1,1 @@
+# Obesp-Kachestva-fun-komp-sistem
